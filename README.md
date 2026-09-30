@@ -1,33 +1,35 @@
-ill make this look pretty later im lazy
-
 <div align="center">
   
 ![](https://komarev.com/ghpvc/?username=benedictmiller&color=cfb053&style=plastic&label=human+nature)
 
 </div>
 <p align="center"> 
-<img src="https://c.tenor.com/9o-zzQxCt1UAAAAd/tenor.gif">
+<img src="https://i.postimg.cc/L5FFKckM/kaaaaz.gif">
 </p>
 
 
 <p align="center"> 
-<a href="https://aerosmith.atabook.org/">sign my ata NOW!</a>
+<a href="https://aerosmith.atabook.org/">ata</a> 　　　　<a href="https://biolove.straw.page">strawpage</a> 　　　　<a href="https://pronouns.cc/@bullseyes">prnscc</a> 　　　　@frumours on disc
 </p>
 <p align="center"> 
-benedict kazuhira mcdonell miller's like. #1 fan ever. we're fusing together as you're reading this actually.
+Meeting people makes me nervous. Please be patient with me. I still love talking.
 </p>
 <p align="center"> 
-desmond / the thing / deimos. he/him, sie/hir, or ✦/✦s. strawpage wip.
+Do not copy my ponies/skins.　C+h is perfectly fine, even if you do not know me.
 </p>
 <p align="center"> 
-i get really easily startled if idk you so like. expect me to be kind of nervous talking to new people. 
+If I am not with a friend, I may be off-tab.　 　Please whisper before interacting!!
 </p>
 <p align="center"> 
-i love metal gear, marvel, warframe, red dead redemption, star wars, assassins creed, & im getting into resident evil. im big into psychology & filmography. dont joke lad.
+No DNI. 　　I'm "antiship", radqueer-critical, pro-endo, pro-mspecmono, & goth.
+  
 </p>
 <p align="center"> 
-i dont have a dni bc i think theyre useless. if youre a proshipper, radqueer, anti-endo, xenosatanist, or share any of my f/os ill hide you most likely.
+Also im an non-sharing "selfshipper" [ <a href="https://valentis.carrd.co/#">im valentis by definition</a> ]. My f/o list is <a href="https://docs.google.com/spreadsheets/d/1P_8ZlhOCiRCY93I7isj-n6RjwqY4kcG6N1OMCIHhjoA/edit?usp=sharing">here. </a>
 </p>
-<p align="center"> 
-also im an non-sharing "selfshipper" [ <a href="https://valentis.carrd.co/#">im valentis by definition</a> ]. so. like. f/o list wip. will add later
+
+<p align="center">
+<a href="https://open.spotify.com/user/31u6qlgegpy65vvotxkzj2dl5dum">
+  <img src="https://spotify-recently-played.jeffreyca.workers.dev/svg?user=31u6qlgegpy65vvotxkzj2dl5dum&amp;theme=transparent&amp;count=1&amp;width=390&amp;radius=3&amp;album=1&amp;profile=off" alt="Spotify recently played" width="390" />
+</a>
 </p>
