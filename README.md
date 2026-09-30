@@ -7,9 +7,10 @@
 <img src="https://i.postimg.cc/L5FFKckM/kaaaaz.gif">
 </p>
 
-
 <p align="center"> 
-<a href="https://aerosmith.atabook.org/">ata</a> 　　　　<a href="https://biolove.straw.page">strawpage</a> 　　　　<a href="https://pronouns.cc/@bullseyes">prnscc</a> 　　　　@frumours on disc
+<a href="https://aerosmith.atabook.org/">ata</a> 　　　　<a href="https://biolove.straw.page">strawpage</a> 　　　　<a href="https://pronouns.cc/@bullseyes">prnscc</a> 　　　　
+$${\color{#cfb053} @frumours　on　disc}$$
+
 </p>
 <p align="center"> 
 Meeting people makes me nervous. Please be patient with me. I still love talking.
@@ -25,7 +26,7 @@ No DNI. 　　I'm "antiship", radqueer-critical, pro-endo, pro-mspecmono, & goth
   
 </p>
 <p align="center"> 
-Also im an non-sharing "selfshipper" [ <a href="https://valentis.carrd.co/#">im valentis by definition</a> ]. My f/o list is <a href="https://docs.google.com/spreadsheets/d/1P_8ZlhOCiRCY93I7isj-n6RjwqY4kcG6N1OMCIHhjoA/edit?usp=sharing">here. </a>
+I am a non-sharing "selfshipper" [ <a href="https://valentis.carrd.co/#">im valentis by definition</a> ].　My f/o list is <a href="https://docs.google.com/spreadsheets/d/1P_8ZlhOCiRCY93I7isj-n6RjwqY4kcG6N1OMCIHhjoA/edit?usp=sharing">here. </a>
 </p>
 
 <p align="center">
