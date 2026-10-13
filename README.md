@@ -26,9 +26,9 @@
 <b> ask for my discord </b>
 
 
-Please interact if you want! I like meeting people/socializing but I may be awkward as
+Please interact if you want! I like meeting people/socializing but I may be awkward
 
-I do have social anxiety. 　　Do not copy any of my skins. C+H is fine for anyone.　　
+as I do have social anxiety. Do not copy any of my skins. C+H is fine for　anyone.
 
 W2I almost always. I am usually off-tab even if I am with my friends.
 
