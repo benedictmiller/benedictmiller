@@ -38,7 +38,7 @@ I have no DNI. I'm "antiship", radqueer-critical, pro-endo, etc.
 
 Follow your own DNI, basically. I hide/block anyone I don't like.
 
-I am a non-sharing "selfshipper" [ <a href="https://valentis.carrd.co/#">im valentis by definition</a> ].　My f/o list is <a href="https://docs.google.com/spreadsheets/d/1P_8ZlhOCiRCY93I7isj-n6RjwqY4kcG6N1OMCIHhjoA/edit?usp=sharing">here. </a>
+I am a non-sharing "selfshipper" [ <a href="https://valentis.carrd.co/#">im valentis by definition</a> ]. <a href="https://docs.google.com/spreadsheets/d/1P_8ZlhOCiRCY93I7isj-n6RjwqY4kcG6N1OMCIHhjoA/edit?usp=sharing">My f/o list. </a>
 
 </td>
   </tr>
