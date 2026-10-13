@@ -26,13 +26,15 @@
 <b> ask for my discord </b>
 
 
-Please interact if you want! I like meeting people/socializing but I may be awkward
+Please interact if you want! I like meeting people/socializing but I may be
 
-as I do have social anxiety. Do not copy any of my skins. C+H is fine for　anyone.
+awkward as I do have social anxiety. Do not copy any of my skins.
 
-W2I almost always. I am usually off-tab even if I am with my friends.
+C+H is fine for　anyone. W2I almost always.
 
-I have no DNI. I'm "antiship", radqueer-critical, pro-endo, pro-mspecmono.
+I am usually off-tab even if I am with my friends.
+
+I have no DNI. I'm "antiship", radqueer-critical, pro-endo, etc.
 
 Follow your own DNI, basically. I hide/block anyone I don't like.
 
